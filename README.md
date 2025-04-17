@@ -1,5 +1,5 @@
 - # Hi, I'm Robin-Matthew 👋  
-Aspiring Data Analyst | Data Clerk | Remote Support Professional
+Aspiring Data Analyst | Data Clerk | Remote Customer Support Professional
 
 I’m transitioning into data analytics with a strong background in customer service and reporting. I’m currently completing the Google Data Analytics Certificate and building a real-world portfolio.
 
