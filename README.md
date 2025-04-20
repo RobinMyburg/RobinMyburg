@@ -31,7 +31,6 @@ I’m transitioning into data analytics with a strong background in customer ser
 ## 🤝 Let’s Connect
 📫 Email: matthewzz12@gmail.com  
 🔗 LinkedIn: [linkedin.com/in/robinmyburg](https://linkedin.com/in/robinmyburg)
-🔗 https://jade-diadem-46c.notion.site/Robin-Myburg-Data-Portfolio-1dbe8773bbed8075ad6efeb25e408ba2?pvs=4
 
 
 <!---
